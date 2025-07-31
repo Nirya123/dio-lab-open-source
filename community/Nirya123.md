@@ -4,7 +4,7 @@
 
 🚀 Apaixonada por desafios!
 
-📚 Quero me aperfeiçoar e me aprofundar cada vez mais em inteligência Artificial e Ciência de Dados.
+📚 Quero me aperfeiçoar e me aprofundar cada vez mais em Inteligência Artificial e Ciência de Dados.
 
 ## Conecte-se comigo
 
